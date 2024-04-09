@@ -1,3 +1,5 @@
+### Hello everyone, I lost my old profile, now I have opened a new one, after that the codes will be updated.
+
 # Parallels Desktop Crack
 Crack for Parallels Desktop 19.0.0-54570
 
